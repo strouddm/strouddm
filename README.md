@@ -1,4 +1,4 @@
-Hi there, I'm David!  I'm inerested in product development and AI systems.
+Hello, I'm David.  I'm inerested in product development and AI systems.
 
 About Me
 
