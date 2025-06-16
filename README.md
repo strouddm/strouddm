@@ -1,4 +1,4 @@
-Hello, I'm David.  I'm inerested in product development and AI systems.
+Hello, I'm David.  I'm inerested in product development, AI systems, and national security.
 
 About Me
 
